@@ -34,5 +34,4 @@ Please write them down below :D
 9. yukimaru
 10. Juratic
 11. Tolucky Hanshin
-
-
+12. Chicchai ossan
